@@ -12,7 +12,7 @@
 
 North by northwest, where the sheep and horses roam beneath dark skies, where tears mingle with the drink;
 North by northwest, get Lanzhou drunk, get Lanzhou drunk...
-This is a poem that belongs to the northwest. The undertone of the northwest is tragic and majestic, just like the life of the northwest people.
+This is a poem that belongs to the northwest. The undertone of the northwest is tragic and majestic, just like the lives of its people.
 
 I want to write my own "North by Northwest": North by northwest, the Tianshan Mountains stand tall and towering, crossing the clouds and reaching into the sky; the Qilian Mountains stretch for thousands of miles, the majestic mountains are like towering barriers, and the snow-capped mountains and majestic grasslands are magnificent. The top of the mountain is covered with snow all year round. Whenever the sun shines, the snow peaks sparkle, like shining gems inlaid on the top of the mountain. The wind in the mountains is like a song, gently blowing on the towering cliffs, like a symphony of nature.
 
