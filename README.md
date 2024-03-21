@@ -1,4 +1,3 @@
-# Nicole
 西北偏北/North by northwest
 
 西北偏北，羊马很黑，你饮酒落泪；
